@@ -1,0 +1,2 @@
+bonjour,
+Je veux participer
